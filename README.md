@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @joeyhuang05
+- 👋 Hi, I’m @joeyhuang05. I'm currently a second year student at Boston University studying Computer Science and Mathematics, on track to graduating in the spring of 2026.
 - 📫 How to reach me joeyh@bu.edu | joey.t.huang@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i have no appendix
